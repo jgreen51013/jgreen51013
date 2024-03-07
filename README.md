@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @jgreen51013
+- 👀 I’m interested in all
+- 🌱 I’m currently learning c+ C++ jave
+- 💞️ I’m looking to not collaborate 
+- 📫 How to reach me Dont
+- 😄 Pronouns:HE!
